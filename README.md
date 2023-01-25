@@ -1,0 +1,5 @@
+# cloudeqTerraAmar2
+
+HOME TASK ASSIGNED BY - Pinkesh Sir
+
+PUSHED BY - AMARJOT SINGH CEQ508
